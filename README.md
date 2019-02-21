@@ -1,4 +1,4 @@
-# PARTIDOPOPULARDEMOCRATICO
+# PARTIDO POPULAR DEMOCRATICO
 El movimiento para Crecer!!! Union, Bienestar y Progreso! 
 
 
